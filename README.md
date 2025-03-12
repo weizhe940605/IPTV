@@ -13,7 +13,7 @@
 ---
 
 ## 🚀 入口地址（总舵）  
-🔗 **主站**：[live.kakaxi-1.ink](https://live.kakaxi-1.ink)  
+🔗 **主站**[weizhe940605.github.io/IPTV](https://weizhe940605.github.io/IPTV)  
 
 ---
 
